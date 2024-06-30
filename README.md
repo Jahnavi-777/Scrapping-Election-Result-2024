@@ -1,0 +1,1 @@
+# Scrapping-Election-Result-2024
